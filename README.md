@@ -1,1 +1,1 @@
-# the-digital-shelf
+# Empower Her Media Project
